@@ -11,7 +11,7 @@
 
 ---
 
-**PNG 背景透明化工具下载链接：**[下载链接](https://drive.google.com/drive/folders/1bPKGqEdW9uTrhabXa1AXELAyy2JyFF4l?usp=drive_link) 
+**PNG 背景透明化工具可直接在附件中下载
 
 ## 🇨🇳 中文说明
 
