@@ -11,7 +11,7 @@
 
 ---
 
-**Tool and download directly in the attachments.
+**Tool and download directly in the attachments.**
 
 ## 🇬🇧 English
 
