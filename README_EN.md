@@ -11,7 +11,7 @@
 
 ---
 
-**Download PNG Background Transparentizer**：[**Download**](https://drive.google.com/drive/folders/1bPKGqEdW9uTrhabXa1AXELAyy2JyFF4l?usp=drive_link) 
+**Tool and download directly in the attachments.
 
 ## 🇬🇧 English
 
